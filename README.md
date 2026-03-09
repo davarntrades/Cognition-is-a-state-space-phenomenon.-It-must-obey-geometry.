@@ -1,0 +1,1 @@
+# Cognition-is-a-state-space-phenomenon.-It-must-obey-geometry.
